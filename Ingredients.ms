@@ -1,0 +1,1 @@
+Onions, Capcicum, Patato, Carrot, Green Chilli, Coriander, Mayonnaise, Cheese, Salt, Black Paper, Square Shape Bread, 
